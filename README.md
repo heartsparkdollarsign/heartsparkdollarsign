@@ -5,3 +5,4 @@
 <p>i like 4lung, everclear, and doglantic , music-wise . i consider myself punk-adjacent .</p>
 <p>i am a physical fictionkin of gourdy holloway . i do not support qwelver .</p>
 <p>my worthy purrson is craigburnsall <3 i love them quite dearly! /p </p>
+<p>i am a minor and grooming victim . do not be weird .</p>
