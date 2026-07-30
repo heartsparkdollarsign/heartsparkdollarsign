@@ -4,3 +4,4 @@
 <p>i like danganronpa and animal hospital . i am also a nonsharing tenko and liz selfshipper .</p>
 <p>i like 4lung, everclear, and doglantic , music-wise . i consider myself punk-adjacent .</p>
 <p>i am a physical fictionkin of gourdy holloway . i do not support qwelver .</p>
+<p>my worthy purrson is craigburnsall <3 i love them quite dearly! /p </p>
