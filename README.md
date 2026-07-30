@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 <!--
 **sparkleandfade/sparkleandfade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<p>laika / mephisto, transneumasc alterbeing & selfshipper.</p>
+<p>i am highly sensitive to criticism and i present symptoms of npd . be patient with me .</p>
+<p>i am also plural and will not remember things my alters may have done .</p>
