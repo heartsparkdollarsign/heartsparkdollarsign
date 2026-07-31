@@ -23,3 +23,5 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Shuichi Saihara (Main, Familial/Brother, Heavily Selective)</li>
 <li>Tibby (Queerplatonic, Sharing Status TBA)</li>
 <li>Akane Owari (Platonic, Hypersharing)</li>
+<li>Toko Fukawa (Romantic, Selective)</li>
+<li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
