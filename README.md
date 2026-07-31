@@ -13,3 +13,10 @@ craigburnsall is my worthy person and i love them so mcuh waahhh!!!!! /plat</p>
 i have the entire npmd script memorized btw. if u evemn care</p>
 
 ![alt text pending](https://64.media.tumblr.com/8482f120a556c01c5765225443db92c7/f6c81cf233beab46-7e/s500x750/3b748985e2488e02dcf184a0e00e724ac59428e1.pnj "alt text pending")
+<p> </p>
+<p> </p>
+<p>F/Os</p>
+<li>Tenko Chabashira (Main, Romantic, Nonsharing)</li>
+<li>Lisbeth (Romantic, Nonsharing)</li>
+<li>Fred S. Calme (Romantic, Heavily Selective)</li>
+<li>Shuichi Saihara (Main, Familial/Brother, Heavily Selective)</li>
