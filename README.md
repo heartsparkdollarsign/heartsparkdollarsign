@@ -7,3 +7,5 @@ craigburnsall is my worthy person and i love them so mcuh waahhh!!!!! /plat</p>
 <p>as u can tell, my favorite crackcare character is fred s. calme!! he's one of my f/os and quite important to me.</p>
 
 ![alt text pending](https://64.media.tumblr.com/43cf31e4561d37fb0fc958cfdf1a9bc2/289cff65be2030f1-d0/s400x600/d7c4f1e6828d22805d3dcc6f054df9ef8d547e8c.gifv "alt text pending")
+
+![alt text pending](https://64.media.tumblr.com/8482f120a556c01c5765225443db92c7/f6c81cf233beab46-7e/s500x750/3b748985e2488e02dcf184a0e00e724ac59428e1.pnj "alt text pending")
