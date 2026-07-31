@@ -5,7 +5,7 @@
 <p>i like 4lung, everclear, and doglantic , music-wise . i consider myself punk-adjacent .</p>
 <p>my worthy purrson is craigburnsall <3 i love them quite dearly! /p </p>
 <p>i am a minor and grooming victim . do not be weird .</p>
-<p></p>
+<p>please note that i <i>will</i> be blunt .</p>
 
 <li>Avian cladotherian</li>
 <li>Captain Campion, Gourdy Holloway, Miu Iruma, Security, Blaze, Droopy, Mesi fictionkin</li>
