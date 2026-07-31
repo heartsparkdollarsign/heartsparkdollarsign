@@ -25,3 +25,10 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Akane Owari (Platonic, Hypersharing)</li>
 <li>Toko Fukawa (Romantic, Selective)</li>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
+<p> </p>
+<p> </p>
+<p> </p>
+<p>Frequent Fronters</p>
+<li>Mephisto / Laika - Host</li>
+<li>Uni Cornelius - Co-host</li>
+<li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf)</li>
