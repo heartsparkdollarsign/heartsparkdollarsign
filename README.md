@@ -2,4 +2,4 @@
 i can be pretty blunt, i have autism and possibly npd. be patient with me.<br />
 nonsharing tenko chabashira selfshipper</p>
 
-![Alt Text](https://64.media.tumblr.com/51f2926b3391ee1121ade5aaa4bbfe6f/7bae68bdc08157b2-5c/s1280x1920/2abc737f37c3d50b00ff780591221c93a03c9b49.pnj "Optional Title")
+![A drawing of Fred S. Calme from the webcomic Crackcare, saying "i amn just........a litle bastard. Thatse it. I canot change this"](https://64.media.tumblr.com/e7f18fcd2b90294930f1cdac05b0824e/f4e811b8eb7fc4fd-0c/s2048x3072/62523397fefd90214596d3f767515dd2844d4519.pnj "A drawing of Fred S. Calme from the webcomic Crackcare, saying 'i amn just........a litle bastard. Thatse it. I canot change this'")
