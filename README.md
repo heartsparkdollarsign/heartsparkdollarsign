@@ -40,6 +40,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Uni Cornelius - Co-host</li>
 <li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf)</li>
 <li>Nagito - Interests Holder</li>
+<p> </p>
+<p> </p>
 
 ![alt text pending](https://64.media.tumblr.com/b2b0c144388693622b4d777384ed9d25/2e7994b5d08d7328-4a/s400x600/8725a706d23adf8f7ec55eccd97330503e5cac9d.gifv "alt text pending")
-# i see you wear your checkered past just like a shining suit of gold .
