@@ -1,6 +1,6 @@
 # watch the world stand still as the years go by .
 
-![alt text pending](https://64.media.tumblr.com/60f0913bf16d4a99f5aa6f9797c63d8d/5b83c0ced1688a19-f4/s400x600/ae57de4972cdff7f3d20c940270ed8434dfe4f80.pnj "alt text pending")
+
 <p>hi, im laika. im a queer plural system with enough disorders to get called a faker on tiktok.<br />
 i can be pretty blunt, i have autism and possibly npd. be patient with me.<br />
 nonsharing tenko chabashira selfshipper and number one trans girl kaito propagandist<br />
