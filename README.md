@@ -32,6 +32,8 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Toko Fukawa (Romantic, Selective)</li>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
+
+![alt text pending](https://64.media.tumblr.com/d85882162c00c69c0297c30c55502c24/197ae636c045f0aa-2d/s1280x1920/46405d6045122ce5bec1a124168f0f59c1f3d1d6.gifv "alt text pending")
 <p> </p>
 <p> </p>
 <p> </p>
