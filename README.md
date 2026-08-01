@@ -28,6 +28,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Akane Owari (Platonic, Hypersharing)</li>
 <li>Toko Fukawa (Romantic, Selective)</li>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
+<li>Knot Evan Livings (Romantic, Voidsharing)</li>
 <p> </p>
 <p> </p>
 <p> </p>
