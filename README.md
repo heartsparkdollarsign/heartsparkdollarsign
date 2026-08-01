@@ -31,8 +31,8 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
 <p> </p>
-<p> </p>
-<p> </p>
+
+![alt text pending](https://64.media.tumblr.com/6a778bc7613121ec77367f0681c53a0c/88b10a2b55a3899e-3c/s250x400/6e8ebb4f4796182f24b6e5f4ed195cd27deaa9d5.gifv "alt text pending") ![alt text pending](https://64.media.tumblr.com/9a16cad0e85468e075d083f82299997c/88b10a2b55a3899e-d8/s250x400/8e0ad539472353179f3a4e00e0cc5c354dca7fe9.gifv "alt text pending") ![alt text pending](https://64.media.tumblr.com/e14871d75d2bd23bc2daf1746b502b5c/88b10a2b55a3899e-5d/s250x400/90d294e9a350a6ee7e20711b534282afead7ace2.gifv "alt text pending")
 <p>Frequent Fronters</p>
 <li>Mephisto / Laika - Host</li>
 <li>Uni Cornelius - Co-host</li>
