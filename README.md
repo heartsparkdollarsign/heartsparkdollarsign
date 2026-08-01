@@ -32,8 +32,6 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Toko Fukawa (Romantic, Selective)</li>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
-
-![alt text pending](https://64.media.tumblr.com/d85882162c00c69c0297c30c55502c24/197ae636c045f0aa-2d/s1280x1920/46405d6045122ce5bec1a124168f0f59c1f3d1d6.gifv "alt text pending")
 <p> </p>
 <p> </p>
 <p> </p>
@@ -43,4 +41,5 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf)</li>
 <li>Nagito - Interests Holder</li>
 
+![alt text pending](https://64.media.tumblr.com/b2b0c144388693622b4d777384ed9d25/2e7994b5d08d7328-4a/s400x600/8725a706d23adf8f7ec55eccd97330503e5cac9d.gifv "alt text pending")
 # i see you wear your checkered past just like a shining suit of gold .
