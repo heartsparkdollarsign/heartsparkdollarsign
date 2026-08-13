@@ -12,7 +12,7 @@ craigburnsall is my worthy person and i love them so mcuh waahhh!!!!! /plat</p>
 
 ![alt text pending](https://64.media.tumblr.com/43cf31e4561d37fb0fc958cfdf1a9bc2/289cff65be2030f1-d0/s400x600/d7c4f1e6828d22805d3dcc6f054df9ef8d547e8c.gifv "alt text pending")
 
-<p>i like crackcare (evidently.), danganronpa, hatchetfield, fuzzy horizon, felidae, and watership down, among others i cannot be bothered to name.<br />
+<p>i like crackcare (evidently.), danganronpa, hatchetfield + other starkid musicals (namely tomb quest), fuzzy horizon, felidae, and watership down, among others i cannot be bothered to name.<br />
 i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
 <p>im the everclear mutual. we become friends/oomfs, you will be listening to everclear. no takebacks</p>
