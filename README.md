@@ -13,6 +13,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
 <p>im the everclear mutual. we become friends/oomfs, you will be listening to everclear. no takebacks</p>
 
+<img width="1280" height="897" alt="tumblr_8a5e0285d829cab722dc6ce3dcfad85a_b93d2fba_1280" src="https://github.com/user-attachments/assets/a5722d07-edef-4fff-8b47-a3046f6060c0" />
 
 <p> </p>
 <p> </p>
