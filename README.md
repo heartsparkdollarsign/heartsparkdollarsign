@@ -6,6 +6,8 @@ THE craigburnsall fan i love craig i love craig /plat</p>
 <p> </p>
 <p>if u see me in ponytown and recognize my cosplays id love to chat! if i dry text, please do not take it personally!</p>
 
+[strawpage](https://heartsparkdollarsign.straw.page)
+
 <img width="150" height="20" alt="tumblr_45f9a03ea04607aadd9b6e4dd353b458_6ab92b03_250" src="https://github.com/user-attachments/assets/88d19950-9517-4915-ab2f-f218b44df9b5" />
 
 
