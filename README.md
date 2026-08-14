@@ -37,3 +37,4 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>"👁️‍🗨️" - we legit dont know yet it just Does stuff</li>
 <p> </p>
 <p> </p>
+<img width="150" height="20" alt="tumblr_2e81f869e4781044f9d8962732235103_909ccefb_250" src="https://github.com/user-attachments/assets/c753f16d-38b7-4143-8b2d-a967a12cbf45" />
