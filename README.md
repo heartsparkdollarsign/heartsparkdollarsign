@@ -6,13 +6,9 @@ craigburnsall is my worthy person and i love them so mcuh waahhh!!!!! /plat</p>
 <p> </p>
 <p>if u see me in ponytown and recognize my cosplays id love to chat. if i dry text, please do not take it personally!</p>
 
+<img width="150" height="20" alt="tumblr_45f9a03ea04607aadd9b6e4dd353b458_6ab92b03_250" src="https://github.com/user-attachments/assets/88d19950-9517-4915-ab2f-f218b44df9b5" />
 
-
-<p>as u can tell, my favorite crackcare character is fred s. calme!! he's one of my f/os and quite important to me.</p>
-
-
-
-<p>i like crackcare (evidently.), danganronpa, hatchetfield + other starkid musicals (namely tomb quest), fuzzy horizon, felidae, and watership down, among others i cannot be bothered to name.<br />
+<p>i like crackcare, animal hospital (evidently.), danganronpa, hatchetfield + other starkid musicals (namely tomb quest), fuzzy horizon, felidae, and watership down, among others i cannot be bothered to name.<br />
 i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
 <p>im the everclear mutual. we become friends/oomfs, you will be listening to everclear. no takebacks</p>
