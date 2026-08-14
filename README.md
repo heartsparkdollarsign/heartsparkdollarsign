@@ -34,5 +34,6 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Uni Cornelius - Co-host</li>
 <li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf)</li>
 <li>Nagito - Interests Holder</li>
+<li>"👁️‍🗨️" - we legit dont know yet it just Does stuff</li>
 <p> </p>
 <p> </p>
