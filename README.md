@@ -29,6 +29,8 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
 <p> </p>
 
+<img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" />
+
 <p>Frequent Fronters</p>
 <li>Mephisto / Laika - Host</li>
 <li>Uni Cornelius - Co-host</li>
