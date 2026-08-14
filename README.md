@@ -15,7 +15,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
 <p>im the everclear mutual. we become friends/oomfs, you will be listening to everclear. no takebacks</p>
 
-<img width="400" height="300" alt="tumblr_b7c806b1b93f0c8bfd8aec4862a4e5e4_8df1a8e5_400" src="https://github.com/user-attachments/assets/c7be0b0a-b901-49dd-bb13-d9175dede32d" />
+
 
 
 
@@ -33,7 +33,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
 <p> </p>
 
-<img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" /> <img width="400" height="400" alt="tumblr_43cf31e4561d37fb0fc958cfdf1a9bc2_d7c4f1e6_400" src="https://github.com/user-attachments/assets/3b9fa660-666c-4948-b4b6-c9ae245291ae" />
+<img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" />
 
 <p>Frequent Fronters</p>
 <li>Mephisto / Laika - Host</li>
