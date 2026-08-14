@@ -1,5 +1,5 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsparkleandfade&label=PATIENTS&labelColor=%23d9e3f0&countColor=%232ccce4&style=plastic)
-<p>pt's fred s. calme<br />
+<p>ponytown's fred s. calme<br />
 hi, im laika. im a queer plural system with enough disorders to get called a faker on tiktok.<br />
 i can be pretty blunt, i have autism and possibly npd. be patient with me.<br />
 security fictionkin, nonsharing tenko chabashira selfshipper and number one trans girl kaito propagandist<br />
@@ -45,5 +45,8 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p> </p>
 <p> </p>
 <img width="150" height="20" alt="tumblr_2e81f869e4781044f9d8962732235103_909ccefb_250" src="https://github.com/user-attachments/assets/c753f16d-38b7-4143-8b2d-a967a12cbf45" /> <img width="400" height="54" alt="tumblr_b2b0c144388693622b4d777384ed9d25_8725a706_400" src="https://github.com/user-attachments/assets/e9d05bab-7abf-49c7-884c-629408870596" />
+<p></p>
+<p></p>
+<p>titles</p>
 
-
+[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
