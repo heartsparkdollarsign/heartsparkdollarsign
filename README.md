@@ -16,6 +16,10 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 
 <img width="1280" height="897" alt="tumblr_8a5e0285d829cab722dc6ce3dcfad85a_b93d2fba_1280" src="https://github.com/user-attachments/assets/a5722d07-edef-4fff-8b47-a3046f6060c0" />
 
+<img width="100" height="96" alt="tumblr_9a16cad0e85468e075d083f82299997c_51975540_100" src="https://github.com/user-attachments/assets/bec11f53-bc4d-43d3-8bfc-a4bc07d93891" /> <img width="100" height="113" alt="tumblr_e14871d75d2bd23bc2daf1746b502b5c_5cba0ce9_100" src="https://github.com/user-attachments/assets/6cb1f0c6-e86b-4bc2-a1bd-238c29c793cc" />
+<img width="100" height="109" alt="tumblr_6a778bc7613121ec77367f0681c53a0c_63019328_100" src="https://github.com/user-attachments/assets/d35d946b-fb47-4821-aea9-a17c5ec4f03a" />
+
+
 <p> </p>
 <p> </p>
 <p>F/Os</p>
