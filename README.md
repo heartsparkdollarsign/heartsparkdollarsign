@@ -15,8 +15,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
 <p>im the everclear mutual. we become friends/oomfs, you will be listening to everclear. no takebacks</p>
 
-
-
+<img width="500" height="500" alt="13955690_9bddd" src="https://github.com/user-attachments/assets/6709f0ca-4420-447b-a70b-409b86d0a476" />
 
 
 <p> </p>
