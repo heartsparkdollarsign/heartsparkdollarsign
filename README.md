@@ -1,6 +1,5 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsparkleandfade&label=PATIENTS&labelColor=%23d9e3f0&countColor=%232ccce4&style=plastic)
-<p>ponytown's fred s. calme<br />
-hi, im laika. im a queer plural system with enough disorders to get called a faker on tiktok.<br />
+<p>hi, im laika. im a queer plural system with enough disorders to get called a faker on tiktok.<br />
 i can be pretty blunt, i have autism and possibly npd. be patient with me.<br />
 security fictionkin, nonsharing tenko chabashira selfshipper and number one trans girl kaito propagandist<br />
 THE craigburnsall fan i love craig i love craig /plat</p>
