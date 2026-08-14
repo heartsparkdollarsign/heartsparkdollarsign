@@ -9,6 +9,8 @@ craigburnsall is my worthy person and i love them so mcuh waahhh!!!!! /plat</p>
 
 <img width="150" height="20" alt="tumblr_45f9a03ea04607aadd9b6e4dd353b458_6ab92b03_250" src="https://github.com/user-attachments/assets/88d19950-9517-4915-ab2f-f218b44df9b5" />
 
+
+
 <p>i like crackcare, animal hospital (evidently.), danganronpa, hatchetfield + other starkid musicals (namely tomb quest), fuzzy horizon, felidae, and watership down, among others i cannot be bothered to name.<br />
 i have the entire npmd script memorized btw. if u evemn care</p>
 <p>i also like edgy graphic shit, fight me</p>
@@ -16,8 +18,6 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 
 <img width="1280" height="897" alt="tumblr_8a5e0285d829cab722dc6ce3dcfad85a_b93d2fba_1280" src="https://github.com/user-attachments/assets/a5722d07-edef-4fff-8b47-a3046f6060c0" />
 
-<img width="100" height="96" alt="tumblr_9a16cad0e85468e075d083f82299997c_51975540_100" src="https://github.com/user-attachments/assets/bec11f53-bc4d-43d3-8bfc-a4bc07d93891" /> <img width="100" height="113" alt="tumblr_e14871d75d2bd23bc2daf1746b502b5c_5cba0ce9_100" src="https://github.com/user-attachments/assets/6cb1f0c6-e86b-4bc2-a1bd-238c29c793cc" />
-<img width="100" height="109" alt="tumblr_6a778bc7613121ec77367f0681c53a0c_63019328_100" src="https://github.com/user-attachments/assets/d35d946b-fb47-4821-aea9-a17c5ec4f03a" />
 
 
 <p> </p>
@@ -34,7 +34,7 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
 <p> </p>
 
-<img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" />
+<img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" /> <img width="400" height="400" alt="tumblr_43cf31e4561d37fb0fc958cfdf1a9bc2_d7c4f1e6_400" src="https://github.com/user-attachments/assets/3b9fa660-666c-4948-b4b6-c9ae245291ae" />
 
 <p>Frequent Fronters</p>
 <li>Mephisto / Laika - Host</li>
@@ -44,4 +44,6 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>"👁️‍🗨️" - we legit dont know yet it just Does stuff</li>
 <p> </p>
 <p> </p>
-<img width="150" height="20" alt="tumblr_2e81f869e4781044f9d8962732235103_909ccefb_250" src="https://github.com/user-attachments/assets/c753f16d-38b7-4143-8b2d-a967a12cbf45" />
+<img width="150" height="20" alt="tumblr_2e81f869e4781044f9d8962732235103_909ccefb_250" src="https://github.com/user-attachments/assets/c753f16d-38b7-4143-8b2d-a967a12cbf45" /> <img width="400" height="54" alt="tumblr_b2b0c144388693622b4d777384ed9d25_8725a706_400" src="https://github.com/user-attachments/assets/e9d05bab-7abf-49c7-884c-629408870596" />
+
+
