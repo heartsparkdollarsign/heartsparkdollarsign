@@ -3,7 +3,7 @@
 hi, im laika. im a queer plural system with enough disorders to get called a faker on tiktok.<br />
 i can be pretty blunt, i have autism and possibly npd. be patient with me.<br />
 security fictionkin, nonsharing tenko chabashira selfshipper and number one trans girl kaito propagandist<br />
-THE craigburns all fan i love craig i love craig /plat</p>
+THE craigburnsall fan i love craig i love craig /plat</p>
 <p> </p>
 <p>if u see me in ponytown and recognize my cosplays id love to chat! if i dry text, please do not take it personally!</p>
 
