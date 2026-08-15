@@ -40,9 +40,9 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p>Frequent Fronters</p>
 <li>Mephisto / Laika - Host</li>
 <li>Uni Cornelius - Co-host</li>
-<li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf)</li>
-<li>Nagito - Interests Holder</li>
-<li>"👁️‍🗨️" - we legit dont know yet it just Does stuff</li>
+<li>Selena - Trauma/Anger/Hypersexuality Holder (usually dniuf) . 🦇</li>
+<li>Nagito - Interests Holder . 🍀</li>
+<li>Oxymoron - we legit dont know yet it just Does stuff . 👁️‍🗨️</li>
 <p> </p>
 <p> </p>
 <img width="150" height="20" alt="tumblr_2e81f869e4781044f9d8962732235103_909ccefb_250" src="https://github.com/user-attachments/assets/c753f16d-38b7-4143-8b2d-a967a12cbf45" /> <img width="400" height="54" alt="tumblr_b2b0c144388693622b4d777384ed9d25_8725a706_400" src="https://github.com/user-attachments/assets/e9d05bab-7abf-49c7-884c-629408870596" />
