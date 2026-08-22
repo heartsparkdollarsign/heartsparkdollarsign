@@ -33,6 +33,8 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <li>Toko Fukawa (Romantic, Loosely Selective (We frequently interact with other Toko yumes, don't be afraid to say hello!))</li>
 <li>Brightney (Romantic, Voidsharing/Heavily Nonsharing)</li>
 <li>Knot Evan Livings (Romantic, Voidsharing)</li>
+<li>Ochako Uraraka (Romantic, Sharing Status TBA)</li>
+<li>Yuga Aoyama (Platonic, Hypersharing)</li>
 <p> </p>
 
 <img width="500" height="500" alt="13955219_6f3de" src="https://github.com/user-attachments/assets/d8348a24-ee04-4301-86b8-72d66d763fe8" />
