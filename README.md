@@ -50,4 +50,4 @@ i have the entire npmd script memorized btw. if u evemn care</p>
 <p></p>
 <p>titles</p>
 
-[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+[@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-medals2](https://github.com/pt-medals2)
